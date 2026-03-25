@@ -4,7 +4,7 @@ Current Learning: Computer Science fundamentals.
 
 Looking to Collaborate: In search for early developers as myself to work on projects that require teamwork and collective problem-solving.
 
-Reach me: [email](mailto:zelenopole@icloud.com) or copy and past zelenopole@icloud.com
+Reach me: zelenopole@icloud.com
 
 Fun Fact: My peak productivity window is early morning, provided the environment is solitary.
 
